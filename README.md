@@ -11,7 +11,9 @@
  
  ***"You are loved."***
 
-<ins> BPD + PDID </ins> - 19 y/o and non binary ! **Please feel free to approach me**, I might be shy/awkward but I'm a really sociable creature and adore talking to people *(specially about my interests)*, so once I know you you'll notice I'm a silly individual. **Very silly /pos**. If I don't reply back I might be busy or AFK, **not ignoring you** !! In that case just send me a whisper so I can properly read what you said. **English is not my first language** so please be patient and kind with me ! Corrections are appreciated, I love learning and being able to communicate with you as best as possible. **Also please use tone tags !!** Whenever I'm stressed or feel bad in general I might go silent, **please don't push me if I don't want to talk.**
+<ins> BPD + PDID </ins> - 19 y/o and non binary ! **Please feel free to approach me**, I might be shy/awkward but I'm a really sociable creature and adore talking to people *(specially about my interests)*, so once I know you you'll notice I'm a silly individual. **Very silly /pos**. If I don't reply back I might be busy or AFK, **not ignoring you** !! In that case just send me a whisper so I can properly read what you said. **English is not my first language** so please be patient and kind with me ! Corrections are appreciated, I love learning and being able to communicate with you as best as possible. **Also please use tone tags !!** Whenever I'm stressed or feel bad in general I might go silent and hide behind others, **please don't push me if I don't want to talk.**
+
+> PS: I barely yumeship but I'm really sharing with the characters I adore !!
 
 *I love my friends and my partner sm. You keep my days bright ♡ .*
 
