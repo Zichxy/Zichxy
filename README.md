@@ -41,7 +41,7 @@
 - Avatar
 
 ㅤ
-> NOTE: Rem, Ivy, Doorman and Pocket are comforting to me. I love batcase, necrofencer and Celeste x Silver, these ships are also a huge comfort ! I also enjoy Doorman x Drifter and Paige x Billy. I'm usually open with anything, if you don't like any of these ships it's okay, just let me know and I'll avoid it ^_^ !
+> NOTE: Rem, Ivy, Doorman and Pocket are comforting to me. I love batcase, necrofencer and Celeste x Silver, these ships are also a huge comfort ! I enjoy a few other ships more and I'm usually open minded with anything, if you don't like any of these ships it's okay, just let me know and I'll avoid it ^_^ !
 
 </p>
 
