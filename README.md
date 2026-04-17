@@ -2,9 +2,9 @@
 
 <p align="center">
 
-<img align="left" width="300" height="300" alt="momonga" src="https://github.com/user-attachments/assets/01bc5b71-b64a-4559-b35c-5c3b6c6f4e69" />
-<img align="right" width="300" height="300" alt="momonga 1" src="https://github.com/user-attachments/assets/3e2aa3e0-47f1-4642-bd36-d7cb9861872c" />
-<img width="300" height="300" alt="momonga 2" src="https://github.com/user-attachments/assets/c3c51642-246d-417d-a412-a472b98d298a" />
+<img align="left" width="200" height="200" alt="momonga" src="https://github.com/user-attachments/assets/01bc5b71-b64a-4559-b35c-5c3b6c6f4e69" />
+<img align="right" width="200" height="200" alt="momonga 1" src="https://github.com/user-attachments/assets/3e2aa3e0-47f1-4642-bd36-d7cb9861872c" />
+<img width="200" height="200" alt="momonga 2" src="https://github.com/user-attachments/assets/c3c51642-246d-417d-a412-a472b98d298a" />
 
 ## ✦ About Me
 <p align="center">
