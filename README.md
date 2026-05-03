@@ -1,5 +1,7 @@
 # Hello, I'm CHI !
 
+> Who's fronting? > https://pluralkit.xyz/f/yskqo
+
 <p align="center">
 
 <img align="left" width="200" height="200" alt="momonga" src="https://github.com/user-attachments/assets/01bc5b71-b64a-4559-b35c-5c3b6c6f4e69" />
