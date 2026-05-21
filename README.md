@@ -32,7 +32,8 @@
 ## ✦ Interests
 <p align="center">
 
-- **Deadlock** (main!)
+- FNAF
+- Deadlock
 - Dispatch
 - Resident Evil
 - Silent Hill
