@@ -56,6 +56,8 @@
 
 **BASIC DNI CRITERIA** >> https://dni-criteria.carrd.co
 
--16 y/o DNI
+-15/16 y/o DNI
+
+If you're a minor I won't involve myself in sexual jokes/topics. It's uncomfortable.
 
 I'm pretty laid back (<ins> depending on the context </ins>) but **these criteria still apply**. Just don't be a weirdo, don't support gross/inhuman/illegal stuff and respect my boundaries.
