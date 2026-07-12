@@ -33,6 +33,7 @@
 <p align="center">
 
 - FNAF
+- DBD
 - Deadlock
 - Dispatch
 - Resident Evil
