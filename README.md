@@ -61,4 +61,6 @@
 
 If you're a minor I won't involve myself in sexual jokes/topics. It's uncomfortable.
 
+If you complain about anything / spread gossip / are involved in issues all the time it's an automatic DNI. Just block and dgaf instead of actually HARASSING PEOPLE and talking abt what bothers you 24/7. Cancel Culture taken to an extreme does not bring real social change, it causes intolerance and cyberbullying.
+
 I'm pretty laid back (<ins> depending on the context </ins>) but **these criteria still apply**. Just don't be a weirdo, don't support gross/inhuman/illegal stuff and respect my boundaries.
