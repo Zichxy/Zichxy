@@ -32,7 +32,7 @@
 ## ✦ Interests
 <p align="center">
 
-- FNAF
+- FNAF (I LOVE FNAF)
 - DBD
 - Deadlock
 - Dispatch
@@ -42,7 +42,6 @@
 - Ace Attorney
 - Baldur's Gate 3
 - Fear & Hunger (1 and 2)
-- Avatar
 
 </p>
 
