@@ -4,9 +4,9 @@
 
 <p align="center">
 
-<img align="left" width="200" height="200" alt="momonga" src="https://github.com/user-attachments/assets/01bc5b71-b64a-4559-b35c-5c3b6c6f4e69" />
-<img align="right" width="200" height="200" alt="momonga 1" src="https://github.com/user-attachments/assets/3e2aa3e0-47f1-4642-bd36-d7cb9861872c" />
-<img width="200" height="200" alt="momonga 2" src="https://github.com/user-attachments/assets/c3c51642-246d-417d-a412-a472b98d298a" />
+<img align="left" width="200" height="200" alt="Puppet" src="https://github.com/user-attachments/assets/9e908ab9-be8a-465e-92fc-8b301ab5af51" />
+<img align="center" width="200" height="200" alt="Star" src="https://github.com/user-attachments/assets/432b6f25-b0ed-4c79-967f-2494fcee63f0" />
+<img align="right" width="200" height="200" alt="Lolbit" src="https://github.com/user-attachments/assets/5e0d5f54-8fc2-45d4-8180-3abd30a91f53" />
 
 ## ✦ About Me
 <p align="center">
