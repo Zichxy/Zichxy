@@ -32,16 +32,21 @@
 ## ✦ Interests
 <p align="center">
 
+MAIN
 - FNAF (I LOVE FNAF)
-- DBD
 - Deadlock
+
+OTHER FANDOMS I KNOW/LIKE
+- Fear & Hunger (1 and 2)
+- DBD
+- HTTYD
 - Dispatch
 - Resident Evil
 - Silent Hill
-- Valorant
 - Ace Attorney
 - Baldur's Gate 3
-- Fear & Hunger (1 and 2)
+- MLP
+- Valorant
 
 </p>
 
