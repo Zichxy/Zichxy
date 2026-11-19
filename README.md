@@ -32,11 +32,11 @@
 ## ✦ Interests
 <p align="center">
 
-MAIN
-- FNAF (I LOVE FNAF)
+**MAIN**
+- FNAF
 - Deadlock
 
-OTHER FANDOMS I KNOW/LIKE
+**OTHER FANDOMS I KNOW/LIKE**
 - Fear & Hunger (1 and 2)
 - DBD
 - HTTYD
@@ -45,8 +45,11 @@ OTHER FANDOMS I KNOW/LIKE
 - Silent Hill
 - Ace Attorney
 - Baldur's Gate 3
+- Deltarune
 - MLP
 - Valorant
+
+*(There's a ton... Feel free to ask!)*
 
 </p>
 
@@ -67,4 +70,4 @@ If you're a minor I won't involve myself in sexual jokes/topics. It's uncomforta
 
 If you complain about anything / spread gossip / are involved in dramas all the time it's an automatic DNI. Just block and dgaf instead of actually HARASSING PEOPLE and talking abt what bothers you 24/7. Cancel Culture taken to an extreme does not bring real social change, it causes intolerance and cyberbullying.
 
-I'm pretty laid back (<ins> depending on the context </ins>) but **these criteria still apply**. Just don't be a weirdo, don't support gross/inhuman/illegal stuff and respect my boundaries.
+I'm pretty laid back (<ins> depending on the context </ins>) but **these criteria still apply**. Just don't be a weirdo, don't support gross/inhuman/illegal stuff and respect my boundaries. Thanks!
